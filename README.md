@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @AHQASIMI
-- 👀 I’m interested in Web desinigning
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on web designer
-- 📫 How to reach me instagram: https://www.instagram.com/accounts/edit/ 
+- 📫 How to reach me on instagram: https://www.instagram.com/accounts/edit/ 
 - facebook:https://www.facebook.com/alihussain.sarshar
 - 
 
